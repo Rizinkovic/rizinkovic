@@ -3,7 +3,7 @@
 👨🏻‍💻 Full-stack web developer <br>
 📳Mobile app developer <br>
 💻Cybersecurity enthusiast <br>
-🐱‍💻You can follow me on X: https://x.com/Rizinkovic
+
 
 
 ## 🌐 Socials:
